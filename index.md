@@ -1,3 +1,6 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+I know we try
+And the days, they go by 
+Until we get old
+There's water in the flowers, let's grow
